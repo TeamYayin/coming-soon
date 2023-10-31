@@ -1,1 +1,1 @@
-Coming Soon Template for V-Hub viz vardhaman-hub.co and vardhaman-hub.in
+Coming Soon Template for Awashed-up nerd web store front
